@@ -1,3 +1,3 @@
 # IB_docs
 
-My investigations of all subjects during IB baccalaureate
+My explorations of all subjects during IB baccalaureate and monography in physics
